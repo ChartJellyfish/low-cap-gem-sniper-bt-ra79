@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://ChartJellyfish.github.io/low-cap-gem-sniper-bt-ra79/ ) |
  |---------------------|----------------------:|
 
 
